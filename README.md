@@ -1,5 +1,9 @@
-## Hi there 👋
+## I am Eumil Talabador 👋
 
+- favorite word is 'humiliated'
+- obsessed with films and jazz (guess what my favorite movie is)
+- spends 2 hours in letterboxd daily (@wumil)
+- into robotics projects
 <!--
 **eumiliated/eumiliated** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
