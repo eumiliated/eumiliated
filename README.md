@@ -1,6 +1,6 @@
-## I am Eumil Talabador 👋
+## eumil :p
 
-- favorite word is 'humiliated'
+- favorite word is 'cumulus'
 - obsessed with films and jazz (guess what my favorite movie is)
 - spends 2 hours in letterboxd daily (@wumil)
 - into robotics projects
